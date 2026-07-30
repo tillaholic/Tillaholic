@@ -20,4 +20,4 @@
 ‎ 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎  ‎‎ ‎‎   ‎ ‎   ‎‎‎ ‎  ‎ ‎ ‎  ‎ $\color{#6D2929}{Ponytown's}$ $\color{#87434A}{Ivan !}$ $\color{#87434A}{-ALNST-}$ $\color{#6D2929}{( ´ ▽ ` )}$
 
-$\color{#87434A}{Thank}$ $\color{#87434A}{you}
+$\color{#87434A}{Thank}$
