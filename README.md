@@ -20,6 +20,8 @@
 ‎ 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎  ‎‎ ‎‎   ‎ ‎ ‎ ‎ ‎‎‎ ‎  ‎ ‎ ‎‎ $\color{#6D2929}{Ponytown's}$ $\color{#87434A}{Ivan !}$ $\color{#87434A}{-ALNST-}$ $\color{#6D2929}{( ´ ▽ ` )}$
 
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ [@pt-hall-of-media](https://github.com/pt-hall-of-media)   [@pt-walk-of-fame](https://github.com/pt-walk-of-fame)
+
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ $\color{#87434A}{Thank}$ $\color{#87434A}{you !!}$ $\color{#6D2929}{𖹭 ֶָ֢}$
 
 
