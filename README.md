@@ -17,7 +17,7 @@
 ‎ 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎  ‎‎ ‎‎   ‎ ‎ ‎ ‎ ‎‎‎ ‎‎ ‎   ‎ ‎ ‎‎ $\color{#87434A}{Ponytown's}$ $\color{#87434A}{Ivan !}$ $\color{#87434A}{-ALNST-}$ $\color{#87434A}{( ´ ▽ ` )}$
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ [@pt-hall-of-media](https://github.com/pt-hall-of-media) [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) [@pt-nominations](https://github.com/pt-nominations)
+‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ [@pt-hall-of-media](https://github.com/pt-hall-of-media) [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) [@pt-nominations](https://github.com/pt-nominations) [pt-contributers](https://github.com/pt-contributers)
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ $\color{#87434A}{Thank}$ $\color{#87434A}{you !!}$ $\color{#6D2929}{‹𝟹}$
 
