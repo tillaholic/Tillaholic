@@ -19,6 +19,8 @@
 
 ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ [@pt-hall-of-media](https://github.com/pt-hall-of-media) [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) [@pt-nominations](https://github.com/pt-nominations) [pt-contributers](https://github.com/pt-contributers)
 
+[@pt-fashion](https://github.com/pt-fashion)
+
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ $\color{#87434A}{Thank}$ $\color{#87434A}{you !!}$ $\color{#6D2929}{‹𝟹}$
 
 
