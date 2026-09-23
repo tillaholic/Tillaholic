@@ -1,7 +1,7 @@
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![image alt](https://github.com/tillaholic/Tillaholic/blob/3b328a9da4b521d2b4dde6ddd93de25062c99623/unnamed.png)
 
-‎ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![image alt](https://github.com/tillaholic/Tillaholic/blob/f30ec3a27db142c907f7f6a0cb8ef78f27b3e92c/ivannamegif.gif) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎  ‎ ‎    ‎ ‎ ‎  ‎ ‎
+‎ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![image alt](https://github.com/tillaholic/Tillaholic/blob/f30ec3a27db142c907f7f6a0cb8ef78f27b3e92c/ivannamegif.gif) ‎ ![image alt](https://github.com/tillaholic/Tillaholic/blob/31cbff0228bb89ce02681806224a335c47cdb76a/blacksorrowgif.gif)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎ ‎  ‎ ‎    ‎ ‎ ‎  ‎ ‎
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=r72vnb35wkrc61ubhuho3dh9f&cover_image=false&theme=natemoo-re&show_offline=true&background_color=000000&interchange=true&profanity=false&hide_remaster=false&bar_color=7c1d1d&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 ‎ 
