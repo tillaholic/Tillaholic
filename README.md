@@ -1,4 +1,4 @@
-ㅤ![image alt](https://github.com/tillaholic/Tillaholic/blob/c84fced3f1c239d0526cefac197d1e6752bfd477/ezgif-cropped.gif)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤ![image alt]()ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
 
