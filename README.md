@@ -18,10 +18,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
-‎ 
-
-
-![image alt](https://github.com/tillaholic/Tillaholic/blob/da44628f6c6d6728af4696714c2312d3b6fd88e7/download-removebg-preview__1_-removebg-preview.png)
+‎ ![image alt](https://github.com/tillaholic/Tillaholic/blob/da44628f6c6d6728af4696714c2312d3b6fd88e7/download-removebg-preview__1_-removebg-preview.png)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝙏𝙄𝙏𝙇𝙀𝙎 :
 
